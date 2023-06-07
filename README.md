@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Lucy! Mexican living in Canada
+- 👀 More than 9 years experience in mechanical engineering
+- 📈 Transitioned to Business Analytics in 2021
+- 💡 I love to tell stories backed up by numbers
